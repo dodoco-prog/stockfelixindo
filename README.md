@@ -1,2 +1,0 @@
-# stockfelixindo
-stock felixindo
